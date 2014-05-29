@@ -1,8 +1,6 @@
 Stream DeluxLoungeRadio.
 http://www.deluxemusic.tv/radio.html
 
-See: 
-http://viewaworld.wordpress.com/download/
 
 
 Find more German-Radio Station direct links here:
